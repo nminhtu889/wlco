@@ -1,2 +1,2 @@
 # wlco
-Hi, i am Nguyen Thi Ngoc Anh, id school @ngocanhnt202, student in @ussh. 
+Hi, i am Nguyen Thi Ngoc Anh, id school @nminhtu889, student in @vnua.
